@@ -6,7 +6,7 @@ subtitle: Why you'd want to go on a date with me
 
 My name is mohammad mahdi. I have the following qualities:
 
-- I love spoone
+- I love spoon
 - I'love pickles
 
 What else do you need?
